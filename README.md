@@ -97,6 +97,10 @@ https://maps.app.goo.gl/SDfcZ9b4qeqBJ8x79
 남북통일평양만두전문 / 홍대입구역 / 이북식 만두   
 특별한 것은 없지만, 그래서 기억에 남을 맛   
 https://maps.app.goo.gl/bX3au1gb2wzrpcWd6   
+<br/>
+(미방문)   
+송백식당 / 광화문 / 부대찌개   
+https://maps.app.goo.gl/62DU2PZ5FuvQLbx49   
 
 ---
 # [ 젊은 느낌 ]
