@@ -1,5 +1,5 @@
 # [서울 노포 미슐랭]
-
+   
 ★★★☆☆   
 미진(1954) / 메밀국수 돈까스 보쌈   
 https://maps.app.goo.gl/k6wLqx5iaHGDnTcj6   
@@ -41,10 +41,8 @@ https://maps.app.goo.gl/F1ijjjdE6X1PXyMh8
 <br/>
 
 ---
-
-<br/>
 # [서울 노포 + 기타 식당]
-
+   
 ★★★★☆   
 영춘옥(1943) / 깔끔한 곰탕, 24시   
 https://maps.app.goo.gl/QS5sRGxekBcnZhvW7   
@@ -104,10 +102,8 @@ https://maps.app.goo.gl/SDfcZ9b4qeqBJ8x79
 <br/>
 
 ---
-<br/>
-
 # [ 젊은 느낌 ]
-<br/>
+   
 ★★★★☆   
 클로셰 / 서촌 / 양식   
 https://maps.app.goo.gl/LJx33gtirGCB6ATt7   
@@ -134,10 +130,8 @@ https://maps.app.goo.gl/WWNqa4573rw6JGGe7
 <br/>
 
 ---
-
-<br/>
 # [ 술 ]
-<br/>
+   
 ★★★★☆   
 빈집 / 을지로 3가 / 와인바   
 가볍게 와인 마시는 곳   
@@ -151,10 +145,8 @@ https://maps.app.goo.gl/vSjQhfieL1eXN76R7
 <br/>
 
 ---
-<br/>
-
 # [ 카페 ]
-<br/>
+   
 (미방문)   
 커피앤시가렛 / 시청역 / 카페+전망   
 https://maps.app.goo.gl/eeytaYhMzo5VhjH26   
@@ -234,11 +226,8 @@ https://maps.app.goo.gl/w8bkBMB99t9Ht67A6
 
 
 ---
-<br/>
-
 # [ 장소 ]
-<br/>
-
+   
 ★★★★☆   
 흥인지문성곽공원 / 동대문역   
 https://maps.app.goo.gl/vfNGaCd3GeLY3d1m6   
