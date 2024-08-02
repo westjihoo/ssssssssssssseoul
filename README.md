@@ -10,6 +10,7 @@
 <br/>
 ## 서울 노포 미슐랭
 <br/>
+
 **미진** (1954) (광화문) ★★★☆☆<br/>
 메밀국수 돈까스 보쌈<br/>
 https://maps.app.goo.gl/k6wLqx5iaHGDnTcj6<br/>
@@ -198,7 +199,7 @@ https://maps.app.goo.gl/4J42ouTTigEvESAX7<br/>
 <br/>
 **회화나무** (창덕궁) ★★★★☆<br/>
 핸드드립<br/>
-시간을 잘 맞추면 **낙조가 내려 앉는 창덕궁을** 볼 수 있음<br/>
+시간을 잘 맞추면 **낙조가 내려 앉는 창덕궁**을 볼 수 있음<br/>
 https://maps.app.goo.gl/ErcnHpCwA7mwDRB1A<br/>
 <br/>
 <br/>
@@ -223,7 +224,7 @@ https://maps.app.goo.gl/yvk2pKzLwRoqfhum7<br/>
 <br/>
 **앤트러사이트** (합정) ★★★★★<br/>
 핸드드립<br/>
-평일에는 **오늘의 커피**를, 주말에는 **취향 껏** 핸드드립(필터커피)를 마시면 된다<br/>
+평일에는 **오늘의 커피**를, 주말에는 **취향껏** 핸드드립(필터커피)를 마시면 된다<br/>
 원두 관리가 잘 되어있음이 느껴지고, 노트 표현 또한 잘 되어있다<br/>
 https://maps.app.goo.gl/BrTdNmQWYeet9E159<br/>
 <br/>
