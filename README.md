@@ -1,3 +1,16 @@
+
+[§ 노포 미슐랭 ](#[서울-노포-미슐랭])
+[§ 노포 + 기타 ](#[서울-노포-+-기타-식당])
+[§ 무난 ](#[무난])
+[§ 술 ](#[술])
+[§ 카페 ](#[카페])
+[§ 장소 ](#[장소])
+
+
+젊은 느낌 https://github.com/westjihoo/ssssssssssssseoul/blob/main/README.md#-%EC%A0%8A%EC%9D%80-%EB%8A%90%EB%82%8C-
+술 https://github.com/westjihoo/ssssssssssssseoul/blob/main/README.md#-%EC%88%A0-
+카페 https://github.com/westjihoo/ssssssssssssseoul/blob/main/README.md#-%EC%B9%B4%ED%8E%98-
+
 # [서울 노포 미슐랭]
    
 **미진** (1954) (광화문) ★★★☆☆   
@@ -13,13 +26,13 @@ https://maps.app.goo.gl/DeKFNdyKpkNqEpv96
 https://maps.app.goo.gl/1gqBVn5pEs527uvL8   
 <br/>
 **하동관** (1939) (명동) ★★★★★   
-곰탕 특(추천)   
-(특) 이상을 시켜야 내장이 함께 나온다   
+곰탕   
+(특) 이상을 시켜야 내장이 함께 나온다. 특 추천   
 깔끔하지만 진한 국물에 바로 먹을 수 있는 적당한 온도로 내어주는 곰탕   
 https://maps.app.goo.gl/njez1DmDtshBYu2Z8   
 <br/>
 **우래옥** (1946) (을지로4가) ★★★★☆   
-평냉   
+평양냉면   
 다른 평양냉면 식당도 맛있지만 그 중 육향이 제일 진하다   
 https://maps.app.goo.gl/TxKv2MyNN2uLxJob9   
 <br/>
@@ -51,7 +64,7 @@ https://maps.app.goo.gl/d8wrsCawtZfR21V26
 <br/>
 **호수집** (1986) (서울역 후문, 충무로) ★★★★★   
 닭도리탕, 닭꼬치jmt   
-6시부터는 웨이팅. 닭꼬치는 최소 인당 2개 이상   
+6시부터는 웨이팅. 닭꼬치는 많이 시키자   
 기본적인 닭도리탕. 그리고 달큰하고 짭조름한 양념을 발라 연탄에 구운 닭꼬치   
 https://maps.app.goo.gl/DujxjxeypCNbasBo7   
 <br/>
@@ -66,7 +79,6 @@ https://maps.app.goo.gl/P6JLpgRN3yvuJcfT6
 https://maps.app.goo.gl/HhD1moprVZYzBRGS9   
 <br/>
 **천하보쌈** (북촌/창덕궁) ★★★★☆   
-한식   
 잡내없이 깔끔한 보쌈과 김치   
 https://maps.app.goo.gl/iKnDwB1kZjzCnfCGA   
 <br/>
@@ -75,7 +87,6 @@ https://maps.app.goo.gl/HSgfMEp9phGdftZu5
 <br/>
    
 **황생가칼국수** (북촌/창덕궁) (미방문)   
-북촌 / 한식   
 https://maps.app.goo.gl/mwzt8psaTydJ5xBb6   
 <br/>
 **토속촌** (경복궁) ★★★☆☆   
@@ -88,7 +99,6 @@ https://maps.app.goo.gl/FEsm3dhm338VKcY88
 https://maps.app.goo.gl/cQVzZ4igetx1fSy96   
 <br/>
 **창신육회 4호점** (종로5가) ★★★★☆   
-육회   
 본점은 웨이팅 필수   
 고추장 베이스 육회비빔밥   
 https://maps.app.goo.gl/SDfcZ9b4qeqBJ8x79   
@@ -104,7 +114,7 @@ https://maps.app.goo.gl/62DU2PZ5FuvQLbx49
 <br/>
 
 ---
-# [ 젊은 느낌 ]
+# [ 무난 ]
    
    
 **클로셰** (서촌) ★★★★☆   
@@ -130,7 +140,7 @@ https://maps.app.goo.gl/PJ4LmXy4QiUdULgh6
 홍콩음식   
 https://maps.app.goo.gl/h48P96do2BhjWuJu5   
 <br/>
-**솔솥** (경복궁) ★★★☆☆   >한식
+**솔솥** (경복궁) ★★★☆☆   한식
 무난한 맛이나 사진 찍기 좋음
 https://maps.app.goo.gl/WWNqa4573rw6JGGe7   
 <br/>
