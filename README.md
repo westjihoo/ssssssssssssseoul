@@ -1,5 +1,5 @@
 # [서울 노포 미슐랭]
-
+<br/>
 ★★★☆☆   
 미진(1954) / 메밀국수 돈까스 보쌈   
 https://maps.app.goo.gl/k6wLqx5iaHGDnTcj6   
@@ -42,9 +42,9 @@ https://maps.app.goo.gl/F1ijjjdE6X1PXyMh8
 
 ---
 
-
+<br/>
 # [서울 노포 + 기타 식당]
-
+<br/>
 ★★★★☆   
 영춘옥(1943) / 깔끔한 곰탕, 24시   
 https://maps.app.goo.gl/QS5sRGxekBcnZhvW7   
@@ -104,10 +104,10 @@ https://maps.app.goo.gl/SDfcZ9b4qeqBJ8x79
 <br/>
 
 ---
-
+<br/>
 
 # [ 젊은 느낌 ]
-
+<br/>
 ★★★★☆   
 클로셰 / 서촌 / 양식   
 https://maps.app.goo.gl/LJx33gtirGCB6ATt7   
@@ -135,9 +135,9 @@ https://maps.app.goo.gl/WWNqa4573rw6JGGe7
 
 ---
 
-
+<br/>
 # [ 술 ]
-
+<br/>
 ★★★★☆   
 빈집 / 을지로 3가 / 와인바   
 가볍게 와인 마시는 곳   
@@ -151,10 +151,10 @@ https://maps.app.goo.gl/vSjQhfieL1eXN76R7
 <br/>
 
 ---
-
+<br/>
 
 # [ 카페 ]
-
+<br/>
 (미방문)   
 커피앤시가렛 / 시청역 / 카페+전망   
 https://maps.app.goo.gl/eeytaYhMzo5VhjH26   
@@ -227,7 +227,62 @@ K-SPOT / 서울로 서울역 / 카페+노을
 https://maps.app.goo.gl/6usFRnwG7RF5kgE1A   
 <br/>
 
-★★★★☆
-몰또 / 명동 / 에스프레소바
-https://maps.app.goo.gl/w8bkBMB99t9Ht67A6
+★★★★☆   
+몰또 / 명동 / 에스프레소바   
+https://maps.app.goo.gl/w8bkBMB99t9Ht67A6   
 <br/>
+
+
+---
+<br/>
+
+# [ 장소 ]
+<br/>
+
+★★★★☆   
+흥인지문성곽공원 / 동대문역   
+https://maps.app.goo.gl/vfNGaCd3GeLY3d1m6   
+<br/>
+(미방문)   
+서울스카이 / 잠실역 / 전망대   
+https://maps.app.goo.gl/UgZiba3vcrpGZ1PZ7   
+<br/>
+★★★★☆   
+청계천 / 종로~을지로 일대   
+https://maps.app.goo.gl/UgZiba3vcrpGZ1PZ7   
+<br/>
+(미방문)   
+국립중앙박물관 / 이촌역   
+https://maps.app.goo.gl/ZFFUzZ8cdJC5Qeam9   
+<br/>
+★★★★★   
+마포새빛문화숲 / 합정, 상수역   
+여의도 전경을 볼 수 있는 야경 스팟   
+https://maps.app.goo.gl/vrcSaThiEPh9Ffmu5   
+<br/>
+★★★★★   
+용양봉저정공원 / 흑석역   
+서울 전경을 볼 수 있는 야경 스팟   
+https://maps.app.goo.gl/qdHQoNut731U8ASd6   
+<br/>
+(미방문)   
+광진교8번가 / 광나루역   
+한강다리 아래에 위치한 이색 공간   
+내부에 화장실이 없으니 역에서 가야됨   
+https://maps.app.goo.gl/riUMKPRjjHyfgEvJ6   
+<br/>
+★★★★☆   
+반포한강공원 / 신반포~반포역   
+무지개 분수 다리   
+https://maps.app.goo.gl/muSaNjPLtA3EFthP9   
+<br/>
+★★★★☆   
+홍제폭포 / 서대문구   
+서울에서 만든 인공폭포   
+봄에는 벚꽃 구경 가능   
+https://maps.app.goo.gl/SrM7zbSaVuimn3jD7   
+<br/>
+★★★☆☆   
+서울숲공원 / 서울숲역, 뚝섬역   
+서울 시내에 위치한 큰 공원   
+https://maps.app.goo.gl/y5kPEUWRgyePC7eu5   
