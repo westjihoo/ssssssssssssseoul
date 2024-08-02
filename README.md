@@ -130,8 +130,7 @@ https://maps.app.goo.gl/PJ4LmXy4QiUdULgh6
 홍콩음식   
 https://maps.app.goo.gl/h48P96do2BhjWuJu5   
 <br/>
-**솔솥** (경복궁) ★★★☆☆   
-한식   
+**솔솥** (경복궁) ★★★☆☆   >한식
 무난한 맛이나 사진 찍기 좋음
 https://maps.app.goo.gl/WWNqa4573rw6JGGe7   
 <br/>
@@ -140,13 +139,11 @@ https://maps.app.goo.gl/WWNqa4573rw6JGGe7
 # [ 술 ]
    
 **빈집** (을지로3가) ★★★★☆   
-와인바   
 어둑한 분위기에 가볍게 와인을 마실 수 있는 곳   
 https://maps.app.goo.gl/XoERppmZ6j9HpNnaA   
 <br/>
 **Thinking inside the Box** (신촌) ★★★★☆   
-바   
-분위기 좋은 바. 위스키도 취급하지만 비싸다   
+분위기 좋은 바. 위스키도 취급하지만 여느 바와 같이 가격대가 조금 높다.   
 https://maps.app.goo.gl/vSjQhfieL1eXN76R7   
 <br/>
 
@@ -271,5 +268,5 @@ https://maps.app.goo.gl/SrM7zbSaVuimn3jD7
 <br/>
 **서울숲** (서울숲/뚝섬) ★★★☆☆   
 서울 시내에 위치한 큰 공원   
-봄 벚꽃 / 가을 낙엽
+봄 벚꽃 / 가을 낙엽   
 https://maps.app.goo.gl/y5kPEUWRgyePC7eu5   
