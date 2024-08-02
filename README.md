@@ -6,44 +6,53 @@
 **§ [ 카페 ](#카페)**   
 **§ [ 장소 ](#장소)**   
    
-
+   
+   
 ## 서울 노포 미슐랭
    
 **미진** (1954) (광화문) ★★★☆☆   
 메밀국수 돈까스 보쌈   
 https://maps.app.goo.gl/k6wLqx5iaHGDnTcj6   
-   
+      
+
 **이문설농탕** (1904) (종각) ★★★★☆   
 깔끔한 설렁탕   
 https://maps.app.goo.gl/DeKFNdyKpkNqEpv96   
-   
+      
+
 **청진옥** (1937) (광화문) (미방문)   
 양선지 해장국   
 https://maps.app.goo.gl/1gqBVn5pEs527uvL8   
-   
+      
+
 **하동관** (1939) (명동) ★★★★★   
 곰탕   
-**특** 이상을 시켜야 내장이 함께 나온다. 특 추천   
+**특** 이상을 시켜야 내장이 함께 나온다 (추천)   
 깔끔하지만 진한 국물에 바로 먹을 수 있는 적당한 온도로 내어주는 곰탕   
 https://maps.app.goo.gl/njez1DmDtshBYu2Z8   
+   
    
 **우래옥** (1946) (을지로4가) ★★★★☆   
 평양냉면   
 육수에서 나는 **육향**이 최고다   
 https://maps.app.goo.gl/TxKv2MyNN2uLxJob9   
    
+   
 **명동교자** (1966) (명동) ★★★★★   
 고기국물 칼국수   
 사람이 항상 많아 가게 내부가 정신없지만 녹진한 **고기국물**에 살짝 퍼진 듯 한 부드러운 면발   
 https://maps.app.goo.gl/p8sEX62mj1pW8bX96   
    
+   
 **할매집** (1975) (경복궁) (미방문)   
 족발, 감자탕   
 https://maps.app.goo.gl/3thhLWjMqKKx5N2o7   
    
+   
 **백년옥** (1992) (서초 예술의전당) ★★★★☆   
 두부   
 https://maps.app.goo.gl/F1ijjjdE6X1PXyMh8   
+   
    
 ---
 ## 서울 노포 및 기타
@@ -52,10 +61,12 @@ https://maps.app.goo.gl/F1ijjjdE6X1PXyMh8
 깔끔한 곰탕, 24시   
 https://maps.app.goo.gl/QS5sRGxekBcnZhvW7   
    
+   
 **닭진미** (1962) (남대문시장) ★★★★★   
 닭곰탕, 백숙, 고기백반(추천)   
 진한 닭 육수. 꼬들꼬들한 닭껍질을 소금에 찍어서   
 https://maps.app.goo.gl/d8wrsCawtZfR21V26   
+   
    
 **호수집** (1986) (서울역 후문, 충무로) ★★★★★   
 닭도리탕, **닭꼬치**   
@@ -63,44 +74,54 @@ https://maps.app.goo.gl/d8wrsCawtZfR21V26
 기본적인 닭도리탕. 그리고 달큰하고 짭조름한 양념을 발라 **연탄**에 구운 닭꼬치   
 https://maps.app.goo.gl/DujxjxeypCNbasBo7   
    
+   
 **원조조박집(1979)** (마포) ★★★★☆   
 돼지갈비, 시래기된장, 동치미   
 저자극 돼지갈비 + 슴슴한 된장   
 https://maps.app.goo.gl/P6JLpgRN3yvuJcfT6   
+   
    
 **진고개(1963)** (충무로, 동대문 2곳) ★★★★☆   
 여러가지 한식을 파는 식당   
 정석적인 달큰한 갈비찜   
 https://maps.app.goo.gl/HhD1moprVZYzBRGS9   
    
+   
 **천하보쌈** (북촌/창덕궁) ★★★★☆   
 잡내없이 깔끔한 보쌈과 김치   
 https://maps.app.goo.gl/iKnDwB1kZjzCnfCGA   
    
+   
 **남대문 칼국수 골목** (남대문시장) ★★★☆☆   
 https://maps.app.goo.gl/HSgfMEp9phGdftZu5   
+   
    
 **황생가칼국수** (북촌/창덕궁) (미방문)   
 https://maps.app.goo.gl/mwzt8psaTydJ5xBb6   
    
+   
 **토속촌** (경복궁) ★★★☆☆   
 삼계탕   
 https://maps.app.goo.gl/FEsm3dhm338VKcY88   
+   
    
 **백제정육점** (종로5가) ★★★☆☆   
 육회+차돌박이   
 간장 베이스 육회비빔밥   
 https://maps.app.goo.gl/cQVzZ4igetx1fSy96   
    
+   
 **창신육회 4호점** (종로5가) ★★★★☆   
 본점은 웨이팅 필수   
 고추장 베이스 육회비빔밥   
 https://maps.app.goo.gl/SDfcZ9b4qeqBJ8x79   
    
+   
 **남북통일평양만두전문** (홍대입구역) ★★★★★   
 이북식 만두   
 특별한 것은 없지만, 그래서 기억에 남을 맛   
 https://maps.app.goo.gl/bX3au1gb2wzrpcWd6   
+   
    
 **송백식당** (광화문) (미방문)   
 부대찌개   
@@ -114,14 +135,17 @@ https://maps.app.goo.gl/62DU2PZ5FuvQLbx49
 양식   
 https://maps.app.goo.gl/LJx33gtirGCB6ATt7   
    
+   
 **오레노라멘** (합정) ★★★★★   
 토리(닭)파이탄(진한 국물) 라멘   
 면리필 가능, 식사 시간대 웨이팅 필요   
 https://maps.app.goo.gl/tLBXEEoJZBZ4n87G9   
    
+   
 **우육면관** (종각) (미방문)   
 대만식 우육면   
 https://maps.app.goo.gl/YiriGHQEQBE1Y2rB9   
+   
    
 **샤오바오우육면** (종각) ★★★★☆   
 중국식 우육면   
@@ -129,15 +153,17 @@ https://maps.app.goo.gl/YiriGHQEQBE1Y2rB9
 바로 나오는 감자채무침이 맥주도둑   
 https://maps.app.goo.gl/PJ4LmXy4QiUdULgh6   
    
+   
 **창창** (창신) (미방문)   
 홍콩음식   
 https://maps.app.goo.gl/h48P96do2BhjWuJu5   
+   
    
 **솔솥** (경복궁) ★★★☆☆   한식
 무난한 맛이나 사진 찍기 좋음
 https://maps.app.goo.gl/WWNqa4573rw6JGGe7   
    
-
+   
 ---
 ## 술
    
@@ -145,11 +171,12 @@ https://maps.app.goo.gl/WWNqa4573rw6JGGe7
 어둑한 분위기에 가볍게 와인을 마실 수 있는 곳   
 https://maps.app.goo.gl/XoERppmZ6j9HpNnaA   
    
+   
 **Thinking inside the Box** (신촌) ★★★★☆   
 분위기 좋은 바. 위스키도 취급하지만 여느 바와 같이 가격대가 조금 높다.   
 https://maps.app.goo.gl/vSjQhfieL1eXN76R7   
    
-
+   
 ---
 ## 카페
    
@@ -157,31 +184,35 @@ https://maps.app.goo.gl/vSjQhfieL1eXN76R7
 카페+전망   
 https://maps.app.goo.gl/eeytaYhMzo5VhjH26   
    
+   
 **오설록** (북촌) (미방문)   
-카페   
 https://maps.app.goo.gl/4J42ouTTigEvESAX7   
+   
    
 **회화나무** (창덕궁) ★★★★☆   
 핸드드립   
 시간을 잘 맞추면 **낙조가 내려 앉는 창덕궁을** 볼 수 있음   
 https://maps.app.goo.gl/ErcnHpCwA7mwDRB1A   
    
+   
 **프릳츠** (안국) (미방문)   
-카페   
 https://maps.app.goo.gl/aTddbjTsuXamFvvT6   
+   
    
 **어니언** (안국) (미방문)   
 베이커리 카페   
 https://maps.app.goo.gl/dnHXz6SufJVSutJ27   
    
+   
 **솔방울베이커리** (익선동) ★★★☆☆   
-베이커리   
+베이커리 카페   
 https://maps.app.goo.gl/JaMPpVjeJvbr3vkVA   
    
+   
 **가베랑솜** (인사동) ★★★★☆   
-카페   
 인사동 거리 전경을 볼 수 있는 카페   
 https://maps.app.goo.gl/yvk2pKzLwRoqfhum7   
+   
    
 **앤트러사이트** (합정) ★★★★★   
 핸드드립   
@@ -189,37 +220,38 @@ https://maps.app.goo.gl/yvk2pKzLwRoqfhum7
 원두 관리가 잘 되어있음이 느껴지고, 노트 표현 또한 잘 되어있다   
 https://maps.app.goo.gl/BrTdNmQWYeet9E159   
    
+   
 **앤트러사이트** (이태원) ★★★☆☆   
 핸드드립   
 합정점과 같이 맛있다. 그러나 조금 어수선한 느낌이다   
 https://maps.app.goo.gl/euBNxGM2aLGqbMfw9   
    
+   
 **오츠커피** (용산) (미방문)   
 비엔나커피   
 https://maps.app.goo.gl/oHCAk989JNHVQgP56   
    
-
+   
 **리에제와플** (시청) ★★★☆☆   
-와플   
 https://maps.app.goo.gl/ScLrxmoC4Uxh6f5e6   
    
-
+   
 **제이히든하우스** (동대문) (미방문)   
 한옥 카페   
 https://maps.app.goo.gl/BPYLrvJ19LNPXBo79   
    
-
+   
 **커피방앗간** (충정로) (미방문)   
 핸드드립   
 https://maps.app.goo.gl/apxAc4cpmvFBAY1j9   
    
-
+   
 **K-SPOT** (서울역 서울로) ★★★☆☆   
 카페+노을   
 시간을 잘 맞추면 맛있는 **노을**을 볼 수 있다   
 https://maps.app.goo.gl/6usFRnwG7RF5kgE1A   
    
-
+   
 **몰또** (명동) ★★★★☆   
 에스프레소바   
 웨이팅 확률 80%   
@@ -227,8 +259,7 @@ https://maps.app.goo.gl/6usFRnwG7RF5kgE1A
 날씨만 좋으면 명동에서는 최고의 선택   
 https://maps.app.goo.gl/w8bkBMB99t9Ht67A6   
    
-
-
+   
 ---
 ## 장소
    
@@ -237,37 +268,46 @@ https://maps.app.goo.gl/w8bkBMB99t9Ht67A6
 조금만 오르면 **동대문 전경**을 볼 수 있고, 낙산공원까지 이어진다.
 https://maps.app.goo.gl/vfNGaCd3GeLY3d1m6   
    
+   
 **서울스카이** (잠실) (미방문)   
 전망대   
 https://maps.app.goo.gl/UgZiba3vcrpGZ1PZ7   
    
+   
 **청계천** (종로, 을지로 일대) ★★★★★   
 https://maps.app.goo.gl/UgZiba3vcrpGZ1PZ7   
    
+   
 **국립중앙박물관** (이촌) (미방문)   
 https://maps.app.goo.gl/ZFFUzZ8cdJC5Qeam9   
+   
    
 **마포새빛문화숲** (합정, 상수) ★★★★★   
 여의도 전경을 볼 수 있는 스팟   
 https://maps.app.goo.gl/vrcSaThiEPh9Ffmu5   
    
+   
 **용양봉저정공원** (흑석) ★★★★★   
 서울 전경을 볼 수 있는 야경 스팟   
 https://maps.app.goo.gl/qdHQoNut731U8ASd6   
+   
    
 **광진교8번가** (광나루) (미방문)   
 한강다리 아래에 위치한 이색 공간   
 내부에 화장실이 없으니 역에서 가야됨   
 https://maps.app.goo.gl/riUMKPRjjHyfgEvJ6   
    
+   
 **반포한강공원** (신반포/반포) ★★★★☆   
 무지개 분수 다리   
 https://maps.app.goo.gl/muSaNjPLtA3EFthP9   
+   
    
 **홍제폭포** (서대문구) ★★★★☆   
 서울시에서 만든 인공폭포   
 봄 벚꽃   
 https://maps.app.goo.gl/SrM7zbSaVuimn3jD7   
+   
    
 **서울숲** (서울숲/뚝섬) ★★★☆☆   
 서울 시내에 위치한 큰 공원   
