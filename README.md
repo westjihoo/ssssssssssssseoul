@@ -8,7 +8,7 @@ https://maps.app.goo.gl/k6wLqx5iaHGDnTcj6
 깔끔한 설렁탕   
 https://maps.app.goo.gl/DeKFNdyKpkNqEpv96   
 <br/>
-**청진옥** (1937) (광화문) (미방문)
+**청진옥** (1937) (광화문) (미방문)   
 양선지 해장국   
 https://maps.app.goo.gl/1gqBVn5pEs527uvL8   
 <br/>
