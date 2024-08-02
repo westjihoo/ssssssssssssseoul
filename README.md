@@ -1,11 +1,11 @@
 # [서울 노포 미슐랭]
    
-미진(1954) ★★★☆☆   
+#### 미진 (1954) ★★★☆☆   
 메밀국수 돈까스 보쌈   
 https://maps.app.goo.gl/k6wLqx5iaHGDnTcj6   
 <br/>
-★★★★☆   
-이문설농탕(1904) / 깔끔한 설렁탕   
+#### 이문설농탕 (1904) ★★★★☆   
+깔끔한 설렁탕   
 https://maps.app.goo.gl/DeKFNdyKpkNqEpv96   
 <br/>
 (미방문)   
