@@ -237,7 +237,7 @@ https://maps.app.goo.gl/vfNGaCd3GeLY3d1m6
 https://maps.app.goo.gl/UgZiba3vcrpGZ1PZ7   
 <br/>
 ★★★★☆   
-청계천 / 종로~을지로 일대   
+청계천 / 종로, 을지로 일대   
 https://maps.app.goo.gl/UgZiba3vcrpGZ1PZ7   
 <br/>
 (미방문)   
