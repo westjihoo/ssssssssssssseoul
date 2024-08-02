@@ -1,5 +1,5 @@
 # [서울 노포 미슐랭]
-<br/>
+
 ★★★☆☆   
 미진(1954) / 메밀국수 돈까스 보쌈   
 https://maps.app.goo.gl/k6wLqx5iaHGDnTcj6   
@@ -44,7 +44,7 @@ https://maps.app.goo.gl/F1ijjjdE6X1PXyMh8
 
 <br/>
 # [서울 노포 + 기타 식당]
-<br/>
+
 ★★★★☆   
 영춘옥(1943) / 깔끔한 곰탕, 24시   
 https://maps.app.goo.gl/QS5sRGxekBcnZhvW7   
