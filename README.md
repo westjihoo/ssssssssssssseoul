@@ -1,15 +1,11 @@
 
-[§ 노포 미슐랭 ](#[서울-노포-미슐랭])
-[§ 노포 + 기타 ](#[서울-노포-+-기타-식당])
-[§ 무난 ](#[무난])
-[§ 술 ](#[술])
-[§ 카페 ](#[카페])
-[§ 장소 ](#[장소])
-
-
-젊은 느낌 https://github.com/westjihoo/ssssssssssssseoul/blob/main/README.md#-%EC%A0%8A%EC%9D%80-%EB%8A%90%EB%82%8C-
-술 https://github.com/westjihoo/ssssssssssssseoul/blob/main/README.md#-%EC%88%A0-
-카페 https://github.com/westjihoo/ssssssssssssseoul/blob/main/README.md#-%EC%B9%B4%ED%8E%98-
+§ [ 노포 미슐랭 ](#[서울-노포-미슐랭])   
+§ [ 노포 + 기타 ](#[서울-노포-+-기타-식당])   
+§ [ 무난 ](#[무난])   
+§ [ 술 ](#[술])   
+§ [ 카페 ](#[카페])   
+§ [ 장소 ](#[장소])   
+<br/>
 
 # [서울 노포 미슐랭]
    
