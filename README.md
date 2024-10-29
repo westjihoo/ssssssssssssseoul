@@ -249,7 +249,7 @@ https://maps.app.goo.gl/ScLrxmoC4Uxh6f5e6<br/>
 https://maps.app.goo.gl/BPYLrvJ19LNPXBo79<br/>
 <br/>
 <br/>
-**커피방앗간** (충정로) (미방문)<br/>
+**커피방앗간** (충정로) ★★★☆☆<br/>
 핸드드립<br/>
 https://maps.app.goo.gl/apxAc4cpmvFBAY1j9<br/>
 <br/>
